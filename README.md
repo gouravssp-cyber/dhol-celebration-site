@@ -1,1 +1,0 @@
-# dhol-celebration-site
